@@ -1,3 +1,1 @@
-Pro pythoner and... 
-Minecraft modpacks creator!
-🚀 🦎 📺
+Professional pythoner and modded Minecraft player
